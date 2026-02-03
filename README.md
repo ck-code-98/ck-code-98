@@ -12,7 +12,7 @@
 
 🌍 Speaking English & German, basic Spanish
 
-📫 How to reach me: LinkedIn or constantin-knappe@web.de
+📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/constantin-knappe/) or constantin-knappe@web.de
 
 
 <!--
